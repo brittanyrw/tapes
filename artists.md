@@ -1,0 +1,6 @@
+- Check Yes Juliet - We The Kings
+- Welcome to the Black Parade - My Chemical Romance
+- Miss Murder - AFI
+- American Idiot - Green Day
+- Dance, Dance - Fall Out Boy
+- I Write Sins Not Tragedies - Panic at the Disco
