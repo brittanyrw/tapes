@@ -4,4 +4,4 @@ Initial songs to add:
 - Welcome to the Black Parade - My Chemical Romance
 - American Idiot - Green Day
 - Check Yes Juliet - We The Kings
-- Miss Murder - AFI
+- Complicated - Avril Lavigne 
